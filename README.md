@@ -1,6 +1,6 @@
 - Why you wanna know me??🙂
 - Hi, I’m @PaceHut 🧐
-   Tho my mother call me 'Mafiz'
+   Tho my every1 call me 'Mafiz'
 - Keen 🚀 to know the logics behind every code.
 - just doing some projects ☠️ well you can find in my repos
 
