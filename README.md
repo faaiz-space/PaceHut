@@ -1,6 +1,6 @@
 - Why you wanna know me??🙂
 - Hi, I’m @PaceHut 🧐
-   Tho every1 call me 'Mafiz'
+   aka 'Mafiz'
 - Keen 🚀 to know the logics behind every code.
 
 ![Tell me Why?!?](https://media.giphy.com/media/VDB85YZsrqMXx3c7DE/giphy.gif)
